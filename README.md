@@ -1,0 +1,19 @@
+![](https://pixels.crd.co/assets/images/gallery24/6b9c6cc1.gif?v=99d3974e) august klein . he / him
+<br> (idk how to make this nice)
+<br> ![](https://autism.crd.co/assets/images/gallery04/0de056be_original.jpg?v=1be2f3c4)![](https://autism.crd.co/assets/images/gallery04/0de056be_original.jpg?v=1be2f3c4) ![](https://autism.crd.co/assets/images/gallery04/19cae0f1_original.jpg?v=1be2f3c4)![](https://autism.crd.co/assets/images/gallery04/19cae0f1_original.jpg?v=1be2f3c4)
+<br>
+<br> i have various typing styles, but i typically shorten words and use longer ones in full
+<br>
+<br> i have an extreme hyperfixation on joost klein!
+<br> he's like a father figure to me so nsfw jokes about him are not appreciated at all
+<br>
+<br> other hyperfixations include --
+<br> ski aggu, käärijä, 01099, ikkimel, 5miinust etc (read rentry ["lakshu"](https://rentry.co/lakshu) for more)
+<br>
+<br> more inf at rentry ["joosticorn"](https://rentry.co/joosticorn)
+<br>
+<br> ![](https://i.imgur.com/c5QjHX8.jpeg)
+<br> ! if u make nsfw jokes i will too
+<!---
+ey bro wyd here
+--->
