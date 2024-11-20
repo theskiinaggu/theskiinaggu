@@ -1,6 +1,6 @@
 ![](https://pixels.crd.co/assets/images/gallery24/6b9c6cc1.gif?v=99d3974e) august klein . he / him
 <br> (idk how to make this nice)
-<br> ![](https://autism.crd.co/assets/images/gallery04/0de056be_original.jpg?v=1be2f3c4)![](https://autism.crd.co/assets/images/gallery04/0de056be_original.jpg?v=1be2f3c4) ![](https://autism.crd.co/assets/images/gallery04/19cae0f1_original.jpg?v=1be2f3c4)![](https://autism.crd.co/assets/images/gallery04/19cae0f1_original.jpg?v=1be2f3c4)
+<br> ![](https://autism.crd.co/assets/images/gallery04/0de056be_original.jpg?v=1be2f3c4)![](https://autism.crd.co/assets/images/gallery04/0de056be_original.jpg?v=1be2f3c4) ![](https://i.postimg.cc/zBXHnMdZ/ocean-gay-flag-20px-7-stripes.png)![](https://i.postimg.cc/zBXHnMdZ/ocean-gay-flag-20px-7-stripes.png)
 <br>
 <br> i have various typing styles, but i typically shorten words and use longer ones in full (eg: ya = yes/yeah). if u dont understand dont ba afraid to ask!!! ^_^
 <br>
