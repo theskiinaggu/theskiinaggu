@@ -10,9 +10,9 @@
 <br> !!! you may rant to me in discord dms / ponytown whispers, but i won't respond as i don't want to reply incorrectly
 <br>
 <br> other hyperfixations include --
-<br> ski aggu, käärijä, 01099, ikkimel, 5miinust etc (read rentry ["lakshu"](https://rentry.co/lakshu) for more)
+<br> ski aggu, käärijä, 01099, ikkimel, 5miinust etc (read rentry ["nullzehnneunundneunzig"](https://rentry.co/nullzehnneunundneunzig) for more)
 <br>
-<br> more inf at rentry ["joosticorn"](https://rentry.co/joosticorn)
+<br> more inf at rentry ["augustklein"](https://rentry.co/augustklein)
 <br>
 <br> ![](https://i.imgur.com/c5QjHX8.jpeg)
 <br> ! if u make nsfw jokes i will too
