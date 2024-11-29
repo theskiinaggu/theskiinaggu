@@ -10,7 +10,7 @@
 <br> !!! you may rant to me in discord dms / ponytown whispers, but i won't respond as i don't want to reply incorrectly
 <br>
 <br> other hyperfixations include --
-<br> ski aggu, käärijä, 01099, ikkimel, 5miinust etc (read rentry ["tanzalarm"](https://rentry.co/tanzalarm) for more)
+<br> ski aggu, käärijä, 01099, ikkimel, 5miinust etc (read rentry ["niinkuchachacha"](https://rentry.co/niinkuchachacha) for more)
 <br>
 <br> more inf at rentry ["augustklein"](https://rentry.co/augustklein)
 <br>
