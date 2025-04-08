@@ -6,6 +6,11 @@
 <br>
 <br> i have an extreme hyperfixation on joost klein!
 <br> he's like a father figure to me so nsfw jokes about him are not appreciated at all
+<br> so according to the above refrain from making any nsfw jokes WITH/INVOLVING him when im using these skins !!!!! vvv
+<br> ![](https://i.imgur.com/VuQogsy.jpeg)![](https://i.imgur.com/sFmrg2h.jpeg)
+<br> ![](https://i.imgur.com/c5dSztb.jpeg)![](https://i.imgur.com/Xg2YL5h.jpeg)
+<br> ![](https://i.imgur.com/f42ZBrO.jpeg)![](https://i.imgur.com/mgHO2Ia.jpeg)
+<br> ![](https://i.imgur.com/q2eE9lU.jpeg)
 <br>
 <br> !!! you may rant to me in discord dms / ponytown whispers, but i won't respond as i don't want to reply incorrectly
 <br>
